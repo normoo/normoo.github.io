@@ -8,6 +8,6 @@ After nearly _two_ full years of wanting a blog, my _[boyfriend](http://www.kane
 
 ## My New Blog
 
-In crafting my blog, I will be focusing on the #_SLP-Life_#.
+In crafting my blog, I will be focusing on the ##_SLP-Life_##.
 
 ![](https://i.imgflip.com/2g92ui.jpg)
