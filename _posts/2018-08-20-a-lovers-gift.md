@@ -10,4 +10,4 @@ After nearly _two_ full years of wanting a blog, my _[boyfriend](http://www.kane
 
 In crafting my blog, I will be focusing on the #_SLP-Life_#.
 
-![SLP and IED](https://imgflip.com/i/2g92ui)
+![](https://i.imgflip.com/2g92ui.jpg)
